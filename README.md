@@ -1,2 +1,2 @@
-# Technical-Writing-Report
-The Role of Communication in Project Management and Team Collaboration 
+# Scientific Research
+AI HUMAN INTERACTIONS IN THE WORKPLACE: NAVIGATING DYNAMICS AND IMPACT
